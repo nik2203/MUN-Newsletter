@@ -61,7 +61,7 @@ In more recent times, post de-colonisation especially, the powers and duties of 
 - Come on guys isn’t it obvious by now?
 ---
 
-###Colonisation: 
+### Colonisation: 
 **Out of the almost 200 current member states (and one observer state) of the UN, the British have, at some point in history, invaded and/or established a military presence in 171 of them**. With an empire spanning 57 colonies or **35.5 million** sq km at its peak, ruling over 20% of the world’s population, it’s no surprise we have a section dedicated to colonisation. ***Yes that’s right, 35.5 million - almost a quarter of the Earth's land surface!***
 In many cases, British colonies were established through military force, and maintained through the exploitation of local resources, both natural and human. The British also imposed their political and economic systems on the colonies at the expense of local cultures and traditions which often led to upheaval, as well as resistance from indigenous populations.
 
@@ -91,7 +91,9 @@ In other parts of the British Empire, like Africa and the Caribbean, the British
 #### 0/10
 - Terrible human rights track record
 - Just a terrible track record really. Don’t think I need to say more
+
 ---
+
 ### War and (No) Peace:
 In all its years of existence, the British empire, and by extension the monarchy has constantly been involved in conflict, whether domestic or international. These wars and conflicts have had a great effect on not only civilians of opposing countries but also on the people of Britain. 
 Wars are extremely expensive and have a significant impact on a country’s economy, and in the case of Britain, have resulted in increased taxes, inflation and government debt which has drastically affected the lifestyle and living conditions of the people of Britain. 
@@ -124,7 +126,7 @@ Many justify the existence of the monarchy in modern times by stating their cont
 - Slowly trying to right their past wrongs
 
 ---
-###Conclusion:
+### Conclusion:
 
 #### Final Worthy Score: 3/10
 
