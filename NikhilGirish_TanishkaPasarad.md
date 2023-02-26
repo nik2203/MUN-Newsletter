@@ -124,7 +124,7 @@ The monarchy’s lack of understanding of the common folk and their desire for e
 ---
 
 #### Worthy Score:
-####3/10
+#### 3/10
 - Too many wars to keep track of
 - Civilians pay too great a cost
 - Due to diminishing military power, they avoid conflict
