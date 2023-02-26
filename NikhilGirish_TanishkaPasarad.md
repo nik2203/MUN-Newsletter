@@ -75,6 +75,7 @@ In more recent times, post de-colonisation especially, the powers and duties of 
 ---
 
 ### Colonisation: 
+
 ![](https://www.washingtonpost.com/graphics/world/british-empire/img/7-1919.jpg?c=cb8de0d)
 *The British Empire at its territorial peak*
 
@@ -111,7 +112,9 @@ In other parts of the British Empire, like Africa and the Caribbean, the British
 #### 0/10
 - Terrible human rights track record
 - Just a terrible track record really. Don’t think we need to say more
+
 ---
+
 ### War and (No) Peace:
 In all its years of existence, the British empire, and by extension the monarchy has constantly been involved in conflict, whether domestic or international. These wars and conflicts have had a great effect on not only civilians of opposing countries but also on the people of Britain. 
 Wars are extremely expensive and have a significant impact on a country’s economy, and in the case of Britain, have resulted in increased taxes, inflation and government debt which has drastically affected the lifestyle and living conditions of the people of Britain. 
@@ -151,7 +154,7 @@ Many justify the existence of the monarchy in modern times by stating their cont
 - Slowly trying to right their past wrongs
 
 ---
-###Conclusion:
+### Conclusion:
 
 #### Final Worthy Score: 3/10
 
